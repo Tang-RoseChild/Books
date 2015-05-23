@@ -10,3 +10,7 @@ Our expectations have been lowered by for us by the media and by our friends,acq
 remarkable life is something you have to discover as even being a resonalbe goal.
 >这本书还关于如何提高追求卓越人生的意愿。然而很奇怪，我们不是以创造卓越的人生为目标而开始我们的事业的，大都随大流。因而我们还需要重新去发掘
 >如何创造卓越的人生
+
+Most people spend far more of their waking adulthood working than doing anything else,according to a study,average Americans spend half of their waking time at work.Leisure and sports are distant 15 percent of waking time spent.The facts show that our
+lives basically are our work.
+>大多数人把清醒的大部分时间都花在工作上了。某项调查发现，美国人清醒的时间有一半用在工作上，而休闲和运动的时间只占到可怜的15%。从侧面说明工作就是基本上就是生活
